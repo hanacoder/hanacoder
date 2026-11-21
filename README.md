@@ -1,5 +1,4 @@
 ## Hiya ✌️
----
 
 I studied IT, ended up in marketing, and kept one foot in design. Building is where I mix all three.
 
